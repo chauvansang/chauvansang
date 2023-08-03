@@ -1,6 +1,6 @@
 ## How many stalkers I have
  
-<img src="https://gpvc.arturio.dev/chauvansang" alt="Profile views"/>
+![](https://hit.yhype.me/github/profile?user_id=10157085)
 
 ## Pretentious GitHub activity
 <a href="https://github.com/chauvansang/chauvansang">
